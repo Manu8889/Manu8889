@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Manu8889
 - 👀 I’m interested in learning technological mindset and to find you your next professional Challenge
-- 🌱 I’m currently learning evrything :-)
+- 🌱 I’m currently learning everything I can :-)
 - 
 - 📫 How to reach me? FhalM.pro@gmail.com
